@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Sylvius.
+- 👋 Hi, I’m Cici.You can also call me suki.I like it equally.
 - 😂 I just confirmed my English name through chatgpt a few minutes before editing this document.
 - 👀 I’m interested in everything I don't know before,I think...
 - 🌱 I’m currently used to ‘摆烂’.
